@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aakandar@syr.edu**
 
-- 📄 Know about my experiences [https://bf8d650e-40b9-4e73-a501-4b48f594d068.filesusr.com/ugd/c33de6_8397a333b614471fb0efd862cbbe5b81.pdf](https://bf8d650e-40b9-4e73-a501-4b48f594d068.filesusr.com/ugd/c33de6_8397a333b614471fb0efd862cbbe5b81.pdf)
+- 📄 Know about my experiences [https://bf8d650e-40b9-4e73-a501-4b48f594d068.filesusr.com/ugd/c33de6_895ae88498d44757862807d833da5395.pdf](https://bf8d650e-40b9-4e73-a501-4b48f594d068.filesusr.com/ugd/c33de6_895ae88498d44757862807d833da5395.pdf)
 
 - ⚡ Fun fact **I'm learnt how to swim at age 28.**
 

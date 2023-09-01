@@ -5,7 +5,7 @@
 
 - 📝 I regularly write articles on [https://kandarkarakash.wixsite.com/aakandarkar/blog](https://kandarkarakash.wixsite.com/aakandarkar/blog)
 
-- 📫 How to reach me **aakandar@syr.edu**
+- 📫 How to reach me **aakandarkar@gmail.com**
 
 - 📄 Know about my experiences [https://bf8d650e-40b9-4e73-a501-4b48f594d068.filesusr.com/ugd/c33de6_895ae88498d44757862807d833da5395.pdf](https://bf8d650e-40b9-4e73-a501-4b48f594d068.filesusr.com/ugd/c33de6_895ae88498d44757862807d833da5395.pdf)
 
